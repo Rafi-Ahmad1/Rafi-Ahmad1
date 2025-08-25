@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Rafi-Ahmad1
 - 👀 I’m interested in Video Games, Anime, Programming, & Computers in general.
 - 🌱 I’m currently learning the basics.
-- 💞️ I’m looking to collaborate on a video game idea of mine.
 - 📫 Reach me through www.linkedin.com/in/rafi-ahmad1.
